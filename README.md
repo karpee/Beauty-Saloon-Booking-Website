@@ -19,3 +19,4 @@
 
 Join **De Master Will Beauty Empire**—where beauty meets empowerment and innovation! 💫
 <br><br>PROJECT LINK: https://demasterswillempire.com/
+<br><br>NOTE: TO VIEW MORE OF MY PROJECTS GO TO REPOSITORIES: https://github.com/karpee?tab=repositories
